@@ -1,4 +1,4 @@
-![](https://user-images.githubusercontent.com/5097017/68039334-f046cb00-fcf1-11e9-9e2d-1355109e8b76.jpg)
+
 
 **About Me**
 
